@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Jujuliace
+- 👀 I’m interested in music, video games, C#
+- 🌱 I’m currently learning life:P
+- 💞️ I’m looking to collaborate on random stuff
+- 📫 How to reach me: u can't 
+- 😄 Pronouns: she/they
+- ⚡ Fun fact: No
